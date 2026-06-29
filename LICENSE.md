@@ -1,4 +1,4 @@
-# 
+# Ligero degen coin sniper bot plugins para Mac OS | Mejor degen coin sniper bot plugins para PC Windows. Con manejo de revert y baja latencia — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
